@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ggdgebsb
+- 👀 I’m interested in anything
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me is ggdgebsb@gmail.com
